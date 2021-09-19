@@ -68,7 +68,7 @@ Shaw和North在大学宿舍楼里初次见面，经过误解后两人慢慢成�
 <br>
 
 
-## Our of Office: Volume 1 (番外一)
+## Out of Office: Volume 1 (番外一)
 评分：4.5/5  <br>
 第一季番外，和县级市的结构一模一样，分别是：金牌助理Pari入社的经过；乡村山羊丢失案；两人收养小狗的经过；Shaw在家照顾狗的闹剧；六个生活小片段
 
@@ -125,7 +125,7 @@ North和Shaw开始谈论婚宴，North想要结婚，但Shaw心中虽不情愿�
 <br>
 
 
-## Our of Office: Volume 2 (番外二)
+## Out of Office: Volume 2 (番外二)
 评分：4.5/5  <br>
 第二季番外，和县级市的结构又是一模一样，县级市HS夫夫也来客串了，分别是：情侣聚会；North给Shaw过生日满足他的各种愿望；两人分手期间破了一个案然后又变成friends with benefit；Teddi男友失踪案；县级市和Borealis联合番外：假冒侦探培训机构犯罪案，Hazard和Somers大量出场互动，结尾和县级市番外二一样开启了Borealis第三季的悬念。
 
